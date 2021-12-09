@@ -1,2 +1,2 @@
-# 1coursea
+# 1cursea
 i made a mistake
